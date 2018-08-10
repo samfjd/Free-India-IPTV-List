@@ -1,1 +1,1 @@
-# Free-India-IPTV-List Test confirmed to be working
+# Free-India-IPTV-List Test
